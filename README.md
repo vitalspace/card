@@ -1,1 +1,1 @@
-![profile](https://github.com/vitalspace/card/assets/29004070/d7ac9e73-68c5-4e12-b6f3-370fc233ee01)
+![view](https://github.com/vitalspace/card/assets/29004070/8c24346d-59ce-4f1d-a395-227bd8d497e9)
